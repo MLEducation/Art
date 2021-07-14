@@ -8,3 +8,7 @@ One of the things that bugs me is not having diverse art for my presentation sli
 
 ## Healing Your Social Media Tips
 My other art is about healing your social media through understanding the algorithms, diversifying your feeds, and reconnecting with joy.
+
+## How to Credit
+
+You can link to @yimluckyregister on Instagram or this github! You can say "from Yim Register" and refer to me using "they", "them", and "their". _e.g. "they make art about social media"_ or _"this is some of their artwork about technology"_
